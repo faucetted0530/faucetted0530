@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @faucetted0530
+- 👀 I’m interested in Data Science, Game Development, UI/UX Design, and Cybersecurity
+- 🌱 I’m currently learning Data Science (Artificial Intelligence, Machine Learning, Data Visualization)
+- 💞️ I’m looking to collaborate on Game Development and UI/UX Design
+- 📫 How to reach me: (443) - 771 - 7405 | donovan.tyree.faucette@gmail.com | www.linkedin.com/in/donovan-faucette-26b183269
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I also know how to video edit, photo edit, and color grade as well!
